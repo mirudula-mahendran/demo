@@ -10,3 +10,5 @@ he is a welder
 my mother name is priya
 she is a house wife
 my sister studied in 9th standard
+my sister and my best friend are my favourite person
+i have no idea about rolemodel
